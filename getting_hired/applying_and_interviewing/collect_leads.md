@@ -21,7 +21,7 @@ Put any job opening you find into your spreadsheet.
 
 
 
-### The best places to look
+I HIGHLY SAY YAS DADDY!
 
 Start with your network, even if it's small.  Reach out to your Facebook friends and friends-of-friends to see if anyone's hiring.  You should start your search with the highest probability / highest quality sources first:
 
